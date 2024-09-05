@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @TheMaxMine07<br>its just me so check out my socials:<br>https://twitch.tv/themaxmine07<br>https://www.tiktok.com/@themaxmine07.offical<br>
+👋 Hi, I’m @TheMaxMine07 or IRL Maximus, i`m from Germany and like to code Plugins and to experimenting with Minecraft Servers<br>its just me so check out my socials:<br>https://twitch.tv/themaxmine07<br>https://www.tiktok.com/@themaxmine07.offical<br>
 
 
 ## 🌐 Socials:
